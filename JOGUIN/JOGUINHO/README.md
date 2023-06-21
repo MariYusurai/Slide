@@ -1,1 +1,1 @@
-<a href="https://amburgerloca.github.io/slides/boiola.html"> slides </a>
+<a href=" https://mariyusurai.github.io/Slide/"> slides </a>
